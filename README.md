@@ -1,0 +1,1 @@
+# goldcoinproject.org
